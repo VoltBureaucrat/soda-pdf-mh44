@@ -1,4 +1,4 @@
-# 
+# smart Wave para PC complementos es el mejor Wave para PC complementos con soporte multi-moneda y seguimiento de gastos. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
